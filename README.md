@@ -1,4 +1,4 @@
-- 👋 Ola! me chamo Isaque Ponciano
+- 👋 Ola! meu nome é Isaque Ponciano
 - 👀 Atualmente estou aprendendo Ciências da Computação na IFRN
 - 🌱 Nacionalidade: Brasileiro
 - 💞️ Amo jogar e tudo que envolve o mundo dos games!
