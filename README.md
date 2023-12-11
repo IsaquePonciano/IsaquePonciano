@@ -2,4 +2,4 @@
 - 👀 Atualmente estou aprendendo Ciências da Computação na IFRN
 - 🌱 Nacionalidade: Brasileiro
 - 💞️ Amo jogar e tudo que envolve o mundo dos games!
-- 📫 Caso queira entrar em contato comigo acesse: www.linkedin.com/in/isaque-menezes-1495012a2
+- 📫 Caso queira entrar em contato comigo, acesse: www.linkedin.com/in/isaque-menezes-1495012a2
