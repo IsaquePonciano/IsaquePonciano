@@ -1,0 +1,5 @@
+- 👋 Ola! me chamo Isaque Ponciano
+- 👀 Atualmente estou aprendendo Ciências da Computação na IFRN
+- 🌱 Nacionalidade: Brasileiro
+- 💞️ Amo jogar e tudo que envolve o mundo dos games!
+- 📫 Caso queria entrar em contato comigo acesse: www.linkedin.com/in/isaque-menezes-1495012a2
